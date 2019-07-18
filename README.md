@@ -1,4 +1,5 @@
-## Let's celebrate sincerity
+## Scarlett Serenity's Sincerity
+# Let's celebrate life outside irony.
 
 You can use the [editor on GitHub](https://github.com/Whaym/whomtoldyou/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
